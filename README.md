@@ -7,3 +7,10 @@ It’s technology, however, that truly lit the fire under data visualization. Co
 
 ![image](https://user-images.githubusercontent.com/84366074/167130598-210df696-f53f-4a83-ad67-80a2ed6f6d5e.png)
 ![image](https://user-images.githubusercontent.com/84366074/167130681-ef3afd0b-e6f8-4228-9cf4-89aa9f09a161.png)
+
+🤙Information related:
+   My channel link: https://youtu.be/-e0UNrOJRi8 
+   For more information just scan the code.
+   ![image](https://user-images.githubusercontent.com/84366074/167132343-c025f958-f26a-4c8b-b63d-a30dbc94dde8.png)
+
+   
